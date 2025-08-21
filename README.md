@@ -225,3 +225,64 @@ Building Credibility
 
 Tailor feedback to the individual, avoiding generic compliments that may come off as insincere.
 Use positive reinforcement to enhance credibility and foster a sense of community in communication.
+
+The misconception surrounding charisma in communication and public speaking.
+
+Understanding Charisma
+
+Charisma is often perceived as an innate quality, but it is actually a learned skill.
+Historical examples, like John F. Kennedy, illustrate that even renowned speakers were once considered poor communicators.
+The Connection Between Speaking Skills and Perception
+
+Charismatic individuals are typically effective speakers, and poor speakers are rarely seen as charismatic.
+Notable political figures, regardless of their politics, are recognized for their strong public speaking abilities.
+Focus on Communication Skills
+
+Instead of seeking an elusive charisma, individuals should concentrate on improving their communication skills.
+Being comfortable and confident while sharing interesting stories can enhance one's perceived charisma in larger audiences.
+
+Various ineffective methods and gimmicks that people often use to improve their public speaking skills, emphasizing the importance of practical preparation instead.
+
+Ineffective Techniques
+
+Tapping and beta blockers are criticized as superficial solutions that do not address the core issues of public speaking anxiety.
+Using substances like marijuana or alcohol before speaking is discouraged, as they do not enhance communication effectiveness.
+Misleading Advice
+
+Techniques like NLP and power posing are deemed impractical for most individuals and do not guarantee a successful presentation.
+The focus on feeling good rather than delivering engaging content is highlighted as a major flaw in many popular methods.
+The Importance of Practice
+
+The speaker advocates for rehearsing presentations on video as the most effective way to improve speaking skills.
+Emphasizing that there are no shortcuts or magical solutions, the speaker encourages learners to avoid gimmicks and focus on genuine practice and preparation.
+
+Overcoming nervousness in public speaking and presentation skills, providing a hierarchy of effective strategies.
+
+Effective Strategies for Overcoming Nervousness
+
+Practice with Video: Watching yourself present on video is the most effective way to reduce nerves, as it allows you to see your strengths and areas for improvement.
+Rehearse in the Actual Space: Practicing in the room where you will present helps familiarize you with the environment, reducing anxiety.
+Additional Techniques
+
+Seek Feedback: Practicing in front of others and receiving constructive feedback builds confidence and helps refine your message.
+Focus on the Audience: Concentrating on how to help your audience rather than on your own nerves can shift your mindset and reduce anxiety.
+Less Effective Methods
+
+Avoid Mirror Practice: Practicing in front of a mirror can lead to self-criticism and distraction, which may hinder confidence.
+Caution with Substances: Using alcohol or beta-blockers may reduce nervousness but can impair recall and overall presentation quality.
+Overall, the key takeaway is to prioritize audience engagement and preparation to effectively manage public speaking anxiety.
+
+Enhancing your communication skills for various audience sizes and contexts.
+
+Understanding Your Objective
+
+Begin by identifying your communication goal: what you want your audience to do after your speech.
+Generate a list of possible messages and narrow it down to your top five.
+Crafting Your Message
+
+Develop engaging stories related to each of your key messages to make them relatable.
+Create a simple outline to help you remember your points during the speech.
+Practicing and Delivering
+
+Use visuals, like images, instead of text-heavy slides to support your messages.
+Practice your delivery on video and seek feedback to build confidence and ensure clarity.
